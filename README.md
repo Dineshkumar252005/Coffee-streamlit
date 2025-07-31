@@ -1,1 +1,0 @@
-# trainy-AI-ML
